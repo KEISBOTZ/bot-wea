@@ -1,0 +1,2 @@
+# bot-wea
+CARA PASANG? DI YOUTUBE KEIS 180
